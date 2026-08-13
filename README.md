@@ -6,4 +6,4 @@ WIP, just in case you're peeking behind the curtain! My creator (̶̞̠̞́͘͝o
 
 WIP, just in case you're peeking behind the curtain! My creator is just setting up a GitHub repository... Oh, jeez. Did I accidentally corrupt the README.md file again with some of my character data? Ahaha!ĶçğëňŁĂŐũĞů¶ŨŌġŀÙśĸļŽĆŇ®£¤ĽïÃōŽíVGhpcyBtb2Qgc2VlbXMgYSBsaXR0bGUgaGFyZCBmb3IgX19fXywgd2lsbCBoZSBiZSBva2F5IHdpdGggaXQsIGF0IGxlYXN0Pw
 
-I think it's better for me to stop here...
+I think it's better for me to stop here... I don't wanna ŰžņŦ¯şŠ¸Æ§ŞěşąĻ²ęÖÎőÉīà¯ŚĊĞŘËóů anymore
