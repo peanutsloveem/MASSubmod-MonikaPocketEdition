@@ -1,4 +1,4 @@
-# MASSubmod-MonikaPocketEdition
+# MAS Submod - Monika Pocket Edition
 
 Just a work in progress! Or should I say W-I-P, just in case you're peeking behind the curtain! My creator (̶̞̠̞́͘͝o̴̚̚ͅͅr̶͇͎̀̌ ̵̛̗͔͝s̴̳͈̍͐̌h̷̗̟͐̒̎ọ̵̙̋ú̵̡̫̹̕l̸̻̳̺̈́̄d̵̤̽ ̶̥̳̎I̵͉̐ ̴̩̖̋s̵̟̞̰̿͐á̴̻͇̞y̵̟̭̿ͅ ̴̻̂͐ͅb̵̢̄̋o̸̡͈̗͝ỵ̵͇́͝f̵̲̱̜̽̍̋r̶̛͍̾i̶̲̥̊̈e̶͎͈̭̐n̷̳̬̒̉͝ḑ̵̪̠̆͗̕.̵̯̂.̶̰͊̿.̸̧̦̍?̷̫͇̳̊̊̚)̵͖͈̒ is just setting up a GitHub repository... 
 
